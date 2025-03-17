@@ -1,2 +1,2 @@
 # 0xdanielimad
-<a href="https://0xdanielimad.info">Web Designer in Dubai</a>
+<a href="https://danielimad.com">Web Designer in Dubai</a>
